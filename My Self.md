@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects on cyber security 
 - 📫 How to reach me 
 - 1. Email:- dhanavathjeswanth@gmail.com
-- 2. Instagram:- jeswanthsmart
+- 2. Instagram:- @jeswanthsmart
 - 3. LinkedIn:- https://www.linkedin.com/in/dhanavath-jeswanth-63a961213
 - 
 <!---
